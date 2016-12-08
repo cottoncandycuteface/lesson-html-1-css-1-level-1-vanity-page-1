@@ -22,6 +22,9 @@
   3. [ ] google
 
 ### Project details
-  1. Project name: 
-  2. Project summary:
+  1. Project name:love,peace,cottoncandy 
+  2. Project summary: 
+    1. Im makingm] mythical creatures.
+    2. T
+    3. One has 10 eyes
   3. Project coordinator: 
