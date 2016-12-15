@@ -25,6 +25,6 @@
   1. Project name:love,peace,cottoncandy 
   2. Project summary: 
     1. Im makingm] mythical creatures.
-    2. T
-    3. One has 10 eyes
+    2. There are 5 mythical craetures.
+    3. this ones name is Turnarapter he has eyes all over him.
   3. Project coordinator: 
